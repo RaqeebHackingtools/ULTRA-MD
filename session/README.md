@@ -1,1 +1,1 @@
-Upload Your Creds File Here
+GlobalTechInfo~H8USywrUaQcq6RlMUf2Nkw4i7tDAVg5lg9a8LBuBJTzVaslyo9
